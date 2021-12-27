@@ -7,3 +7,7 @@
 physicality provides a sense of [division](/void/gravity/density/matter/mass/division.md);
 
 like the sky and the [ground](/void/gravity/density/matter/mass/orbit/balance/ground.md).
+
+<br>
+
+[water]() is the universal solution
